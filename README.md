@@ -1,2 +1,2 @@
 # 2026-primer-repositorio
-elevar al papear aura
+elevar al papear 
