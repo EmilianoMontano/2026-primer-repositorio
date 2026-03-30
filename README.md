@@ -1,2 +1,2 @@
 # 2026-primer-repositorio
-Papoi
+elevar al papear
